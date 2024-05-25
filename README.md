@@ -1,4 +1,4 @@
-Privacy Policy for LetterLink
+# Privacy Policy for LetterLink
 
 Effective Date: 25th May 2024
 
